@@ -21,4 +21,4 @@ I am an 18-year-old undergraduate Chemistry major with a passion for analytical 
 
 ### 📫 Connect with me
 * https://www.linkedin.com/in/harikrishna-y-k-959b0b256/
-* mailto:harikrishna5062@yahoo.com
+* harikrishna5062@yahoo.com
